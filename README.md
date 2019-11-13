@@ -1,73 +1,13 @@
-# Who am I? 
+So … Who am I?
+It seems like such a simple question, but at the same time, it can be so confusing and complicated. In order to answer this question, I could simply tell everyone what my name is, what I do for a living, who my favorite celebrity is, and some questions like that. It’s kind of “boring”, but because I have not quite figure myself out yet, so guess what, this is exactly how I am going to tell you who I am today.
+My Chinese name is “陈萌”, with the “萌” in “萌萌哒”. I cannot remember when this phrase become popular. Maybe It happened after a movie that 林志玲acted in. There is a famous sentence“萌萌，站起来.  Ever since that I got a nickname of 萌萌. I know it’s a lovely nickname, but to be honest, I do not like it. It is way too childish and girlish for me. And You know, in the companies I ever worked, only few people knew my full name. They are used to call me nickname so that they didn’t even know what my last name is. When people talk about me, they talk more about my name than my personality. They would say, “Ah, that girl with a cute name of 萌萌.” I prefer getting talked about in another way, such as, “Ah, the girl who works hard, who is so funny, so smart and so hot.” That would probably be a compliment I would very like to hear.My English name is also a topic. Many customers like to joke with me by calling me “Echooooooo”.  Some of them also asked me why did I name myself Echo? Does this name have any particular meaning? I have to say yes. There was a famous female writer in China named 三毛. I happened to know that her English name was Echo. I really appreciate her views on the relationships between two people, and I was deeply touched by her and Jose’s love story, so I gave myself the name, Echo.  
+And  the first time when I came to this club, John told me that actually Echo was a name of a an ancient Greek fairy. I searched on internet and found out he is right. Echo was a beautiful goddess who fond of talking which is very similar to this echo. No matter in a chat or an argument, she always have the last word. She was loved by other goddess. Her beauty and kindness has been jealous by Zeus’s wife Hera. So Hera took away most of her voice. All she could do was echo sounds made by others. It was a beautiful story. If you want to know more, just search echo on the internet. 
 
-## 1
-2o years ago, on a garden bench sitting a little girl who was wondering what she will be when she grows up. 
+Above is a brief introduction of myself. If you like this Echo and would like to make friends with her, please go and watch the famous American TV series, “Friends”. We will have a lot to talk about, and plus you will find out this Echo is as hot as Rachel, as funny as Phoebe, and as disciplined as Monica. 
 
-Will she be a movie star? 
-Or be a popular singer? 
-Or be a professional dancer 
-Or just be someone’s wife who takes care of her husband and children. … 
-I suppose, there is no student who loves study will have such dreams. 
+By the way, to answer the questions, my full name is Echo Chen, I am now working as an oversea sale in a trading company. 林更新is My favorite celebrity .
 
-## 2
-Yes, that girl she hated study so much! She hang out with her friends every study day and every weekend. 
+And I just became an official member of toastmaster last week. It’s a magic club where people can always have fun. I am so glad to be here. 
 
-She talked loudly in class and never listened to her teachers carefully. 
-All her homework were copied from other students. 
-It was lucky for her to pass her first and second grade in the primary school. 
-But unfortunately she failed her third grade’s final exam. 
-Her head teacher called her father to have a face to face meeting. 
-She was panic and freaked out because although she wasn’t the only girl who failed the exam but she was the only girl whom asked by the teacher to talk with her parents. 
-When her father came, she even didn’t dare to look at his eyes. 
-She thought her father would be mad enough to give her a hard punishment. 
-But her father didn’t say any word to her after talking to her teacher. 
-It’s was a long way home even though she walked that road everyday and in fact it’s only 1 km far away from her school. 
-
-## 3
-Before went to bed that night, her father finally talked to her, 
-
-he said
-
-
->  I know you will be my special girl from the first sight of your birth. 
->
->  You have magic, a magic to turn you into a better person. 
->
->  You can do anything as long as you want to do”. 
-
-
-She felt so guilty and cried out. 
-After that day, she studied hard and became the best student in her class in half years time. 
-She went into high school and college successfully and never made her parents worry about her anymore. 
-She truly believes that she kind of have a magic to make herself a better person and can achieve any goals in her life. 
-
-## 4
-5 years ago, 
-there was a young lady sitting at a chair in a Subway station wondering whether should she leave Nanjing, a city broke her heart deeply. 
-
-She was so confused. Her parents live there, her friends live there, her job is there, her life circle is there. 
-
-Would it be too pity to leave so many people just because of some bad memories? 
-And what If she can’t find a satisfied job after she left Nanjing? 
-What If she can’t make friends in the new city which she is going to live? 
-Her life is full of uncertainty. 
-But suddenly her father’s words rushed into her mind 
-
-
-> You have a magic, 
-> a magic that can help you do anything you want to do.
-
-
-So she quit her job in Nanjing and headed for the new city. 
-
-She got a job there and worked as hard as she always did. 
-In her spare time, She learned cooking, dancing and now she joined an amazing club to learn English. 
-
-Previously she was shy to speak in public but now she is standing on the stage telling her stories. 
-
-## 5
-She is me, I am Echo. I liked my current life so much. 
-
-Thank you! 
-
+Thank you all!
 
